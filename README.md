@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @omnitechph
+- 👀 I’m interested in new techs
+- 🌱 I’m currently learning cross-platform techs
+- 📫 How to reach me: romnickmuana@gmail.com
